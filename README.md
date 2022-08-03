@@ -6,7 +6,8 @@
 - 👯 I’m looking to collaborate on internship
 - 📫 How to reach me: matheus.fnds20@gmail.com or fernandes.silva2@aluno.ifsp.edu.br
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I'm also a historian
+- ⚡ Fun fact: I'm also a historian📜⏳
+
 -->
 
 <div align="center">
